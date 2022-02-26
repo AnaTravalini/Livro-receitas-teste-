@@ -1,10 +1,12 @@
-Receita Sagu:
+## Receita Sagu:
 
-Lavar o Sagu levemente;
- deixar de molho na agua por alguns minutos;
-  colocar na panela desejada com agua e colocar para ferver;
-   mexer bem enquanto ferve;
-   quando estiver cozido adicione o saborizante e mexa bem;
-    Deixe no fogo por poucos minutos ate tudo estar misturado;
-     deixe esfriar e coloque na geladeira em seguida;
-      sirva onde desejar e aproveite.
+*  Lavar o Sagu levemente ;
+* Deixar de molho na água natural por alguns minutos;
+* Colocar na panela desejada e ferver em fogo baixo;
+* Mexer bem enquanto ferve;
+* Ele ficara transparente quando estiver cozido ;
+*  Adicione o saborizante e mexa bem fora do fogo;
+*   Deixe no fogo por poucos minutos até estar misturado;
+*   Deixe esfriar naturalmente;
+*   Coloque na geladeira assim que estiver morno ou frio.
+*   sirva onde desejar e aproveite.
